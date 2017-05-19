@@ -1,6 +1,6 @@
 ### Frog
 
-There was one frog jumping around. Her favourite word was "kwa". She was green and shiny. The frog lived in the lake that was small and round, sometimes on a t-shirt of a boy. While being around the lake, she was too tiny to realise that the lake is small, and every day she would travel around the lake and always though that it's sort of magic that she goes straight but always comes back home. But we all, related to the story, know that it was not magic at all.
+There was one frog jumping around. Her favourite word was "kwa". She was green and shiny. The frog lived in the lake that was small and round, or sometimes on a t-shirt of a boy. While being around the lake, she was too tiny to realise that the lake is small, and every day she would travel around the lake and always though that it's sort of magic that she goes straight but always comes back home. But we all, related to the story, know that it was not magic at all.
 
 She made some kind of weird friendship with a fly. Nobody likes flies, but the frog had open personally, according to a psychological test she took once, she was an extrovert and an altruist. However, that was not it. The fly knew a lot of stories and she has been through many adventures in her life. She would always tell the stories to the frog. 
 
